@@ -19,7 +19,7 @@
 
 ### 🌍 Based in Dubai
 
-I'm open to remote opportunities and **mission-driven teams** building for wellness, creativity, and education.
+I'm open to remote opportunities and mission-driven teams building for wellness, creativity, and education.
 
 ---
 
